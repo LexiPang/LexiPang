@@ -2,7 +2,7 @@
 - 👀 I’m interested in sleeping
 - 🌱 I’m currently learning to sleep
 - 💞️ I’m looking to collaborate on sleeping
-- 📫 How to reach me sleep
+- 📫 How to reach me: in your dreams
 - ⚡ Fun fact: When I sleep less than 7 hours a day, I spend no more than 25200 seconds sleeping on this day.
 
 <!---
